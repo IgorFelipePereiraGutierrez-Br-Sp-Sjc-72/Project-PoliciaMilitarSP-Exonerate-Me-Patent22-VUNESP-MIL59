@@ -1,2 +1,6 @@
 # Project-PoliciaMilitarSP-Exonerate-Me-Patent22-VUNESP-MIL59
-Project to make " Public Unofficial Journal Communication" where Me: Igor Felipe Pereira Gutierrez was Exonerated by Hided Coronel of PM with Micro-Wave Communications-MIL59
+
+- Project to make " Public Unofficial Journal Communication" where Me: Igor Felipe Pereira Gutierrez was Exonerated by Hided Coronel of PM with Micro-Wave Communications.
+
+
+ID: #TX-240220262136-12-12-IFPG-440422115
